@@ -41,8 +41,6 @@ Some other quiz and programming solutions
 
 <a href="https://www.chase2learn.com/linkedin-skill-assessment-answers/">LinkedIn Skill Assessment Answers</a>
 
-<a href="https://www.chase2learn.com/linkedin-skill-assessment-answers/">LinkedIn Skill Assessment Answers</a>
-
 <a href="https://www.chase2learn.com/nptel-solutions/">NPTEL Solutions</a>
 
 
